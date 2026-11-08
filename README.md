@@ -1,0 +1,1 @@
+# otaku-goods-radar-site
